@@ -5,7 +5,7 @@ Some cry when their team loses.
 Some shout when their team hit six.  
 
 And then there are people who ask the same question like me:  
-**Can we really [make money from a cricket match](https://sportsx9.info/)?**  
+Can we really [make money from a cricket match](https://sportsx9.info/)?
 
 I asked myself this many times.  
 At first, I thought, “Nah, maybe only players and board makes.”  
@@ -19,7 +19,7 @@ Straight truth.
 ## Fantasy Cricket (Big Thing)
 
 Fantasy apps are everywhere now.  
-Dream11, MPL, My11Circle—you name it.  
+Sportsx9, PlayerzPot, Vision11—you name it.  
 
 What happens here?  
 You pick a team on mobile, not real, just virtual.  
